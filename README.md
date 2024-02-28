@@ -1,2 +1,2 @@
 # minhduy
-Hello, I am Le Minh Duy, student in @dlu, id school @lmiduy703.
+Hello, I am Le Minh Duy, student in @dnu, id school @lmiduy703.
